@@ -7,7 +7,6 @@
 
 [![Discord](https://shields.io)](https://discord.gg/s2mM3Q2hR)
 [![Visitors](https://dwyl.com)](https://dwyl.com)
-[![Status](https://shields.io)](https://github.com)
 
 *A Temple that is also a school, a community and a hospital, like the Olden Times.*
 
