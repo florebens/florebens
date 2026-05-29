@@ -1,9 +1,9 @@
 <div align="center">
 
 <!-- 🌌 BANNER NATIVO (Usando tu imagen de la NASA cargada en el repo) -->
-<img src="nasa-rTZW4f02zY8-unsplash.jpg" width="100%" alt="Shevirat Cosmic Header" />
+<img src="nasa-rTZW4f02zY8-unsplash~2.jpg" width="100%" alt="Shevirat Cosmic Header" />
 
-# ✨ Welcome to Shevirat ✨
+# Welcome to Shevirat ✨
 
 [![Discord](https://shields.io)](https://discord.gg/s2mM3Q2hR)
 [![Visitors](https://dwyl.com)](https://dwyl.com)
