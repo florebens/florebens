@@ -7,7 +7,7 @@
 
 
 *Shevirat is a Temple.   
-A Temple that is also a school, a community and a hospital, like the Olden Times.* 
+It is also a school, a community and a hospital, like the Olden Times.* 
 
 ---
 </div>
