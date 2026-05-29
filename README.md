@@ -3,7 +3,7 @@
 <!-- 🌌 BANNER NATIVO (Usando tu imagen de la NASA cargada en el repo) -->
 <img src="imagen 9_20260529_145353_0000.jpg" width="100%" alt="Shevirat Cosmic Header" />
 
-# Welcome to Shevirat ✨
+# Welcome to Shevirat
 
 [![Discord](https://shields.io)](https://discord.gg/s2mM3Q2hR)
 [![Visitors](https://dwyl.com)](https://dwyl.com)
@@ -15,7 +15,7 @@
 </div>
 
 ### 🌌 The Vision
-Shevirat is the Air Castle, a spiritual operative system that integrates the creative flow of the mystic and the coherent rigor of the scholar. **It is robust, flexible, self-guided, modular, scalable and open source.** There is no dogma, no institution, no external validation, no *crutches*.  
+Shevirat is the Air Castle, a Spiritual Operative System that integrates the creative flow of the mystic and the coherent rigor of the scholar. **It is robust, flexible, self-guided, modular, scalable and open source.** There is no dogma, no institution, no external validation, no *crutches*.  
  
 Shevirat is a meeting place in the Cosmic Farlands, accessible to the Sovereign citizens both incarnate and ethereal.   
 
