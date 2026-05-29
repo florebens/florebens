@@ -5,10 +5,9 @@
 
 # Welcome to Shevirat
 
-[![Discord](https://shields.io)](https://discord.gg/s2mM3Q2hR)
-[![Visitors](https://dwyl.com)](https://dwyl.com)
 
-*A Temple that is also a school, a community and a hospital, like the Olden Times.*
+*Shevirat is a Temple.   
+A Temple that is also a school, a community and a hospital, like the Olden Times.* 
 
 ---
 </div>
