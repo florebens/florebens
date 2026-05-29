@@ -1,7 +1,7 @@
 <div align="center">
 
-<!-- 🌌 BANNER CÓSMICO -->
-<img src="https://unsplash.com" width="100%" alt="Shevirat Cosmic Header" />
+<!-- 🌌 BANNER NATIVO (Usando tu imagen de la NASA cargada en el repo) -->
+<img src="nasa-rTZW4f02zY8-unsplash.jpg" width="100%" alt="Shevirat Cosmic Header" />
 
 # ✨ Welcome to Shevirat ✨
 
