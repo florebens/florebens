@@ -15,7 +15,7 @@ A Temple that is also a school, a community and a hospital, like the Olden Times
 ### 🌌 The Vision
 Shevirat is a Spiritual Operative System that integrates the creative flow of the mystic and the coherent rigor of the scholar. **It is robust, flexible, self-guided, modular, scalable and open source.**   
   
-It is also the *Air Castle*, there is no dogma, no institution, no external validation, no fillings, no *crutches*. Pure Substance, soul work, dream grinding, Shadow mining. Alchemy of the highest order.
+It is also the **Air Castle**: no dogma, no institution, no external validation, no fillings, no *crutches*. Pure soul work, inner grind, Alchemy of the highest order.
  
 Shevirat is a meeting place in the Cosmic Farlands, accessible to the Sovereign citizens both incarnate and ethereal.   
 
