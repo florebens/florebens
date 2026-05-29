@@ -17,9 +17,9 @@ Shevirat is the Air Castle, a Spiritual Operative System that integrates the cre
  
 Shevirat is a meeting place in the Cosmic Farlands, accessible to the Sovereign citizens both incarnate and ethereal.   
 
-This Repository is a partial render of the Akashic Records of the Founder, Florencia Benson.  
+This Library is a partial render of the Akashic Records of the Founder, Florencia Benson.  
   
-In this Library, you will find resources to Heal, Grow and Evolve into the new version of Humanity, in which every being is enlightened, present and connected.  
+In these Repositories, you will find resources to Heal, Grow and Evolve into the new version of Humanity, in which every being is enlightened, present and connected.  
 
 ---
 
