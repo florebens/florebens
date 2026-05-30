@@ -45,7 +45,7 @@ In these Repositories, you will find resources to Heal, Grow and Evolve into the
 ### THANK YOU FOR DOING THE WORK 
 
 
-| [📺 Direct Activations](https://youtube.com) | [💬 Join Discord](https://discord.gg/s2mM3Q2hR) | [🧘 Community Portal](https://discord.gg/s2mM3Q2hR) |
+| [📺 Direct Activations](https://youtube.com) | [💬 Join Discord](https://discord.gg/s2mM3Q2hR) | [🧘 Community Portal](https://github.com/florebens) |
 | :---: | :---: | :---: |
 
 **FOR EXTRA HUGS!! ʕっ•ᴥ•ʔっ**
