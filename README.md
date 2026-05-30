@@ -1,6 +1,5 @@
 <div align="center">
 
-<!-- 🌌 BANNER NATIVO (Usando tu imagen de la NASA cargada en el repo) -->
 <img src="imagen 9_20260529_145353_0000.jpg" width="100%" alt="Shevirat Cosmic Header" />
 
 # Welcome to Shevirat
