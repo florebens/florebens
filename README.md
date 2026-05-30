@@ -1,6 +1,6 @@
 <div align="center">
 
-<img src="imagen 9_20260529_145353_0000.jpg" width="100%" alt="Shevirat Cosmic Header" />
+<img src="IMG_20260530_145143~2.jpg" width="100%" alt="Shevirat Cosmic Header" />
 
 # Welcome to Shevirat
 
