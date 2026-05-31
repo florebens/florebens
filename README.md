@@ -33,6 +33,7 @@ In these Repositories, you will find resources to Heal, Grow and Evolve into the
 ---
 
 ### 🔮 New Resources
+* 🐛 ***[Wormhole Manifestation and Topology Magic](https://bitly.cx/nxrFl)***
 * 🚀 ***[Spiritual Transhumanism](https://bitly.cx)***  
 * 💖 ***[Cosmic Love](https://bitly.cx)***   
 
