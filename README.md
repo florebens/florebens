@@ -26,16 +26,16 @@ In these Repositories, you will find resources to Heal, Grow and Evolve into the
 
 > ## 🏛️ Library Overview
 >
-> * 🌎 **New Earth** - *Spiritual Transhumanism & Evolutionary Technology*
+> * 🌎 **[New Earth](https://github.com/florebens/ebooks/tree/fce4b514b1611b11a0730fe37293a25390b4111a/New%20Earth )** - *Spiritual Transhumanism & Evolutionary Technology*
 > * 🪷 **Deep Healing** - *Restore, Expand & Activate the Human Machine*
 > * 💎 **Merkaba & Crystalline Body** - *Ascended Masters, Bodhisattvas & the Christ Consciousness*  
 
 ---
 
 ### 🔮 New Resources
-* 🐛 ***[Wormhole Manifestation and Topology Magic](https://bitly.cx/nxrFl)***
-* 🚀 ***[Spiritual Transhumanism](https://bitly.cx)***  
-* 💖 ***[Cosmic Love](https://bitly.cx)***   
+* 🐛 ***[Wormhole Manifestation and Topology Magic](https://github.com/florebens/ebooks/blob/fce4b514b1611b11a0730fe37293a25390b4111a/New%20Earth/BENSON_WORMHOLE_MANIFESTATION_2026.md)***
+* 🚀 ***[Spiritual Transhumanism](https://github.com/florebens/ebooks/blob/fce4b514b1611b11a0730fe37293a25390b4111a/New%20Earth/2026_Spiritual_Transhumanism_EN.md)***  
+* 💖 ***[Cosmic Love](https://github.com/florebens/ebooks/blob/fce4b514b1611b11a0730fe37293a25390b4111a/New%20Earth/Cosmic_Love.md)***   
 
 ---
 
