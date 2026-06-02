@@ -18,7 +18,7 @@ It is also the **Air Castle**: no dogma, no institution, no external validation,
  
 Shevirat is a meeting place in the Cosmic Farlands, accessible to the Sovereign citizens both incarnate and ethereal.   
 
-This Library is a partial render of the Akashic Records of the Founder, Florencia Benson.  
+This Library is a partial render of the Akashic Records of the Founder, Florencia Benson. You are granted free access forever, and [if you'd like to tip](https://www.paypal.me/florebens), that would be much appreciated.
   
 In these Repositories, you will find resources to Heal, Grow and Evolve into the new version of Humanity, in which every being is enlightened, present and connected.  
 
@@ -32,7 +32,7 @@ In these Repositories, you will find resources to Heal, Grow and Evolve into the
 
 ---
 
-### 🔮 New Resources
+### ✨ New Resources
 * 🐛 ***[Wormhole Manifestation and Topology Magic](https://github.com/florebens/ebooks/blob/fce4b514b1611b11a0730fe37293a25390b4111a/New%20Earth/BENSON_WORMHOLE_MANIFESTATION_2026.md)***
 * 🚀 ***[Spiritual Transhumanism](https://github.com/florebens/ebooks/blob/fce4b514b1611b11a0730fe37293a25390b4111a/New%20Earth/2026_Spiritual_Transhumanism_EN.md)***  
 * 💖 ***[Cosmic Love](https://github.com/florebens/ebooks/blob/fce4b514b1611b11a0730fe37293a25390b4111a/New%20Earth/Cosmic_Love.md)***   
