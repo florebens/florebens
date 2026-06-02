@@ -26,9 +26,9 @@ In these Repositories, you will find resources to Heal, Grow and Evolve into the
 
 > ## 🏛️ Library Overview
 >
-> * 🌎 **[New Earth](https://github.com/florebens/ebooks/tree/fce4b514b1611b11a0730fe37293a25390b4111a/New%20Earth )** - *Spiritual Transhumanism & Evolutionary Technology*
+> * 🌎 **[New Earth](https://github.com/florebens/ebooks/tree/fce4b514b1611b11a0730fe37293a25390b4111a/New%20Earth )** - *Historical and Spiritual forces behind this Great Transition*
 > * 🪷 **Deep Healing** - *Restore, Expand & Activate the Human Machine*
-> * 💎 **Merkaba & Crystalline Body** - *Ascended Masters, Bodhisattvas & the Christ Consciousness*  
+> * 💎 **Merkaba & Crystalline Body** - *Spiritual Technology of the Ascended for our Conscious Evolution*  
 
 ---
 
