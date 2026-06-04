@@ -28,7 +28,7 @@ In these Repositories, you will find resources to Heal, Grow and Evolve into the
 >
 > * 🌎 **[New Earth](https://github.com/florebens/ebooks/tree/fce4b514b1611b11a0730fe37293a25390b4111a/New%20Earth )** - *Historical and Spiritual forces behind this Great Transition*
 > * 🪷 **Deep Healing** - *Restore, Expand & Activate the Human Machine*
-> * 💎 **Merkaba & Crystalline Body** - *Spiritual Technology of the Ascended for our Conscious Evolution*  
+> * 💎 **[Merkaba & Crystalline Body](https://github.com/florebens/ebooks/tree/1ffbdee71c2c4b3da4b13fdcd1cdd2f3966aca0d/Merkaba%20and%20Crystalline%20Body)** - *Spiritual Technology of the Ascended for our Conscious Evolution*  
 
 ---
 
