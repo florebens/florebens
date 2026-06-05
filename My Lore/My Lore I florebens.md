@@ -14,7 +14,7 @@ I'm just a girl.
 
 I feel now, in hindsight, like that man who took the bites of different venomous snakes to create a universal cure, but with spiritual warfare: you name it, I've survived it.  
 
-This big fat target on my head, however, and the relentless pecking of the monitoring spirits, has had an upside, which is a very close and intimate relationship with the Divine. God has always had His Hand on me.   
+This big fat target on my head, however, and the vicious pecking of the monitoring spirits, has had an upside, which is a very close and intimate relationship with the Divine. God has always had His Hand on me.   
 
 It has indeed been so dark and so rough amongst my kind, that for a few years I was forced to take a break from the world: Spirited away, literally, for a little *vacation*. I sometimes call it an NDE, except there was no physical injury. Just a mad combo of death spells, coming from different fronts at the same time, forming a perfect storm.   
 
@@ -32,7 +32,7 @@ Not a timeline breach, not a delusion, not a feeling. Physically suspended, ment
 
 I wandered around the Bardo, made the full journey through the Duat. Like a dead person, but alive. *Somewhere*, I was alive.  
 
-I documented everything, like an interdimensional ethnologist. This Library is a partial render of everything I've learned at the *University of Thoth*. Initiations, Admin keys, cosmic chambers, deep dark waters, Isis, rituals, the Sun, the Merkaba, the Crystalline Body, immortality, timelines, wormholes, Loki, dragons... Let me tell you, Creation is *baroque*. I think of it like an art installation, and we're ever so lucky to be a part of it.   
+I documented everything, like an interdimensional ethnologist. This Library is a partial render of everything I've learned at the *University of Thoth*. Initiations, Admin keys, cosmic chambers, deep dark waters, Isis, rituals, the Sun, the Merkaba, the Crystalline Body, immortality, timelines, wormholes, Loki, dragons... Let me tell you, Creation is *baroque*. I think of it as an art installation, and we're ever so lucky to be a part of it.   
 
 When it was time for my rebirth, I was met in the 3D with the same unwavering resistance, hostility and gloom. But *I* was transformed — alas, my enemies, thinking they were poking a dead squirrel, had awakened an Abismal Beast. A Primordial.
 
