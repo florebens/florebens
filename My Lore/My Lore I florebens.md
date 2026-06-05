@@ -1,3 +1,5 @@
+# KILL THE LUMINOUS CHILD
+
 I'm a Survivor of a satanic cult.  
 
 That is a wild sentence to write, I know, yet the facts didn't fully click until now, in my forties.  
@@ -6,7 +8,9 @@ My karmic family was not just abusive, they belong to a Lodge. You know the ones
 
 My bloodline is very special.   
 
-The promise of a first-born, a gifted child at that, was worth a fortune. And they very much tried to cash it in. Many attempts were made to sacrifice me — physically, mentally and spirituality. The spiritual warfare was relentless, full-force, treacherous.  
+The promise of a first-born, a gifted child at that, was worth a fortune. And they very much tried to cash it in. Many attempts were made to sacrifice me — physically, mentally and spirituality. The instruction was clear: *kill the luminous child*. Ironically, in their eyes I was the monster.
+  
+The spiritual warfare was thus relentless, full-force, treacherous.  
 
 All the while, I was striving to create beauty in the world, through art and poetry and humanitarian activism. Like a ballerina in the battlefield, I twirled, dodging bullets and axes, and got upset when my tutu was ruined.   
 
