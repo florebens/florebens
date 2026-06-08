@@ -22,5 +22,5 @@ Very well then, challenge accepted.
 
 After the clean up, organizing, rearranging, I realized I could very easily apply much of my toolkit to this realm. And so I stayed, not as a fresh start, but as a new layer, an expanded experience, and oh so many new friends. 
 
-Can't wait for you to meet them. Huzzah 💫
+Can't wait for you to meet them. *Huzzah!* 💫
 
