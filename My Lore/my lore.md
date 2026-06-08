@@ -1,10 +1,7 @@
 ## Who am i *to me*:
 
-• im a very level headed person irl, who just happens to be discovering, organizing and presenting a new field of thought and experience for humanity  
+• im a very level headed person irl, who just happens to be discovering, organizing and presenting a new field of thought and experience for humanity 📝🌌
 
-• a spiritual guru, a Bodhisattva, a guide, oracle, prophet, muse. Friendly alien 👾   
-
-• leader of leaders, architects of the New Earth 
 
 ---
 
