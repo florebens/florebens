@@ -16,7 +16,7 @@ Then came the spiritual awakening.
 
 Turns out, if you spend your life aligning every single detail of yourself to a Greater Good, you end up enlightened! Who knew.  
 
-I didn't wince nor backed down — just another territory to explore. And my, was it utterly unkempt! Rough, abandoned, pillaged, corrupt.
+I didn't wince nor back down — just another territory to explore. And my, was it utterly unkempt! Rough, abandoned, pillaged, corrupt.
 
 Very well then, challenge accepted.
 
