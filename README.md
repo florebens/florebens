@@ -25,12 +25,12 @@ In these Repositories, you will find resources to Heal, Grow and Evolve into the
 ---
 
 > ## 🏛️ Library Overview
->
-> * 🌎 **[New Earth](https://github.com/florebens/ebooks/tree/fce4b514b1611b11a0730fe37293a25390b4111a/New%20Earth )** - *Historical and Spiritual forces behind this Great Transition*
-> * 🪷 **[Deep Healing](https://github.com/florebens/ebooks/tree/1ffbdee71c2c4b3da4b13fdcd1cdd2f3966aca0d/Deep%20Healing)** - *Restore, Expand & Activate the Human Machine*
-> * 💎 **[Merkaba & Crystalline Body](https://github.com/florebens/ebooks/tree/1ffbdee71c2c4b3da4b13fdcd1cdd2f3966aca0d/Merkaba%20and%20Crystalline%20Body)** - *Spiritual Technology of the Ascended for our Conscious Evolution*
-> * ⚕️ **[Cosmic Architecture](https://github.com/florebens/ebooks/tree/346c40410e482fd2b6d0136a3ed512c4f8ca2ad4/Cosmic%20Architecture)** - *the structure of the universe and hardcore physics*
-
+> *One Temple, three doors.*
+> Deep healing for the Wounded, a rich toolbox for the Rationalist, and abundand knowledge for the Seeker.
+> 
+> - 🩸 **[Wounded](https://github.com/florebens/ebooks/tree/b675be2e065be2c339488f274f492677dca8a3f8/Wounded)** - *the weary traveller who needs deep healing, restoration, comfort*
+> - 🧪 **[Rationalist](https://github.com/florebens/ebooks/tree/b675be2e065be2c339488f274f492677dca8a3f8/Rationalist)** - *the curious and rigorous who will not settle for half-baked answers*
+> - 🔍 **[Seeker](https://github.com/florebens/ebooks/tree/b675be2e065be2c339488f274f492677dca8a3f8/Seeker)** - *one who has peeped through the Veil and now can't unsee it*
 ---
 
 ### ✨ New Resources
