@@ -29,9 +29,9 @@ In these Repositories, you will find resources to Heal, Grow and Evolve into the
 *One Temple, three doors.*
 Deep healing for the Wounded, a rich toolbox for the Rationalist, and knowledge galore for the Seeker.
 
-- 🖤 The **[Wounded](https://github.com/florebens/ebooks/tree/b675be2e065be2c339488f274f492677dca8a3f8/Wounded)** - *the weary traveller who needs deep healing, restoration, comfort*
-- 🤍 The **[Rationalist](https://github.com/florebens/ebooks/tree/b675be2e065be2c339488f274f492677dca8a3f8/Rationalist)** - *the inquisitive and rigorous who will not settle for half-baked answers*
-- ❤️ The **[Seeker](https://github.com/florebens/ebooks/tree/b675be2e065be2c339488f274f492677dca8a3f8/Seeker)** - *one who has peeked through the Veil and now can't unsee it*
+- 🖤 **[The Wounded](https://github.com/florebens/ebooks/tree/b675be2e065be2c339488f274f492677dca8a3f8/Wounded)** - *the weary traveller who needs deep healing, restoration, comfort*
+- 🤍 **[The Rationalist](https://github.com/florebens/ebooks/tree/b675be2e065be2c339488f274f492677dca8a3f8/Rationalist)** - *the inquisitive and rigorous who will not settle for half-baked answers*
+- ❤️ **[The Seeker](https://github.com/florebens/ebooks/tree/b675be2e065be2c339488f274f492677dca8a3f8/Seeker)** - *one who has peeked through the Veil and now can't unsee it*
 ---
 
 ### ✨ New Resources
