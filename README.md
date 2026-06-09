@@ -34,9 +34,9 @@ In these Repositories, you will find resources to Heal, Grow and Evolve into the
 ---
 
 ### ✨ New Resources
-* 🐛 ***[Wormhole Manifestation and Topology Magic](https://github.com/florebens/ebooks/blob/53996fd3761ca668a02e41d200273d49bce793d9/New%20Earth/Wormhole%20Manifestation%20and%20Topology%20Magic.md)***
-* 🚀 ***[Spiritual Transhumanism](https://github.com/florebens/ebooks/blob/53996fd3761ca668a02e41d200273d49bce793d9/New%20Earth/Spiritual%20Transhumanism%20SPITRA%20florebens.md)***  
-* 💖 ***[Cosmic Love](https://github.com/florebens/ebooks/blob/53996fd3761ca668a02e41d200273d49bce793d9/New%20Earth/Cosmic%20Love.md)***   
+* 🐛 ***[Wormhole Manifestation and Topology Magic](https://github.com/florebens/ebooks/blob/b675be2e065be2c339488f274f492677dca8a3f8/Seeker/Wormhole%20Manifestation%20and%20Topology%20Magic.md)***
+* 🚀 ***[Spiritual Transhumanism](https://github.com/florebens/ebooks/blob/b675be2e065be2c339488f274f492677dca8a3f8/Rationalist/Spiritual%20Transhumanism%20SPITRA%20florebens.md)***  
+* 💖 ***[Cosmic Love](https://github.com/florebens/ebooks/blob/b675be2e065be2c339488f274f492677dca8a3f8/Seeker/Cosmic%20Love.md)***   
 
 ---
 
