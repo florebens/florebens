@@ -11,9 +11,9 @@ Sociologist, poet, published author, political analist, journalist, cultural cri
 
 Then came the spiritual awakening.  
 
-Turns out, if you spend your life aligning every single detail of yourself to a Greater Good, you end up enlightened! Who knew.  
+Turns out, if you spend your life aligning every single detail of yourself to a Higher Standard, you end up enlightened! Who knew.  
 
-I didn't wince nor back down — just another territory to explore. And my, was it utterly unkempt! Rough, abandoned, pillaged, corrupt. *Rude??*
+I didn't flinch, wince nor back down — just another territory to explore. And my, was it utterly unkempt! Rough, abandoned, pillaged, corrupt. *Rude??*
 
 Very well then, challenge accepted.
 
