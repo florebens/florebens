@@ -1,6 +1,8 @@
 ## Who am i *to me*:
 
-• im a very level headed person irl, who just happens to be discovering, organizing and presenting a new field of thought and experience for humanity 📝🌌
+• im a very level headed person irl, who just happens to be discovering, organizing and presenting a new field of thought and experience for humanity 📝🌌  
+
+•  I think I am now a Thinker, a Healer, a Seer and a Maker.
 
 
 ---
@@ -13,7 +15,7 @@ Then came the spiritual awakening.
 
 Turns out, if you spend your life aligning every single detail of yourself to a Higher Standard, you end up enlightened! Who knew.  
 
-I didn't flinch, wince nor back down — just another territory to explore. And my, was it utterly unkempt! Rough, abandoned, pillaged, corrupt. *Rude??*
+I didn't flinch nor back down — just another territory to explore. And my, was it utterly unkempt! Rough, abandoned, pillaged, corrupt. *Rude??*
 
 Very well then, challenge accepted.
 
