@@ -2,7 +2,7 @@
 
 • im a very level headed person irl, who just happens to be discovering, organizing and presenting a `new field of thought and experience` for humanity 📝🌌  
 
-• im now a `Thinker`, a `Healer`, a `Seer` and a `Builder`.
+• im now a `Thinker`, a `Healer`, a `Seer` and a `Builder`, aka an embodied polymath.
 
 
 ---
