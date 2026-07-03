@@ -50,6 +50,6 @@ Deep healing for the Wounded, a rich toolbox for the Rationalist, and knowledge 
 | [📺 Direct Activations](https://youtube.com) | [💬 Join Discord](https://discord.gg/s2mM3Q2hR) | [📝 Worksheets](https://github.com/florebens/worksheets) |
 | :---: | :---: | :---: |
 
-**FOR EXTRA HUGS!! ʕっ•ᴥ•ʔっ**
+**ʕっ•ᴥ•ʔっ**
 
 </div>
