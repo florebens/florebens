@@ -22,7 +22,7 @@ Shevirat is also an **Air Castle**: no dogma, no institution, no external valida
  
 Shevirat is a meeting place in the Cosmic Farlands, accessible to the Sovereign citizens both incarnate and ethereal.   
 
-This Library is a partial render of the Akashic Records of the Founder, Florencia Benson. You are granted free access forever, and [if you'd like to tip](https://www.paypal.me/florebens), that would be much appreciated.
+This Library is fully authored by Shevirat's Founder, Florencia Benson. You are granted free access forever, and [if you'd like to tip](https://www.paypal.me/florebens), that would be much appreciated.
   
 In these Repositories, you will find resources to Heal, Grow and Evolve into the new version of Humanity, in which every being is enlightened, present and connected.  
 
