@@ -12,7 +12,7 @@ It is also a school, a community and a hospital, like the Olden Times.*
 </div>
 
 ### 🌌 The Vision
-Shevirat is a Spiritual Operative System that integrates the creative flow of the mystic and the coherent rigor of the scholar. **It is robust, flexible, self-guided, modular, scalable and open source.**   
+Shevirat is a Spiritual Operative System that integrates the creative flow of the mystic and the coherent rigor of the scholar. **It is modular, flexible, self-guided, coherent, scalable and open source.**   
   
 It is also the **Air Castle**: no dogma, no institution, no external validation, no fillings, no *crutches*. Pure soul work, inner grind, Alchemy of the highest order.
  
