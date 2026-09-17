@@ -12,9 +12,13 @@ It is also a school, a community and a hospital, like the Olden Times.*
 </div>
 
 ### 🌌 The Vision
-Shevirat is a Spiritual Operative System that integrates the creative flow of the mystic and the coherent rigor of the scholar. **It is modular, flexible, self-guided, coherent, scalable and open source.**   
+Shevirat is a contemporary framework for an updated understanding of the Human Machine, elegantly integrating the psychological, sociological, material and spiritual dimensions into the Master Blueprint. 
+
+The Shevirat epistemological approach integrates the creative flow of the mystic and the rigor of the scholar. The result is an Interdimensional Cathedral, an architecture that is **comprehensive, modular, self-guided, coherent, robust, transparent and open source**. A system of models that are interrelated, perfectly aligned to one other and proven productive for the goal of healing, growing and evolving into the most powerful version one can possibly become.    
+
+The core philosophy of the model is Spiritual Transhumanism, which contends that humanity is on its path towards a new evolutionary phase, and therefore each individual can, and should, perhaps, actualize their full potential at these critical times.
   
-It is also the **Air Castle**: no dogma, no institution, no external validation, no fillings, no *crutches*. Pure soul work, inner grind, Alchemy of the highest order.
+Shevirat is also an **Air Castle**: no dogma, no institution, no external validation, no fillings, no substances, no *crutches*. Pure soul work, inner grind, Alchemy of the highest order.
  
 Shevirat is a meeting place in the Cosmic Farlands, accessible to the Sovereign citizens both incarnate and ethereal.   
 
