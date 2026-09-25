@@ -16,7 +16,7 @@ Shevirat is a contemporary framework for an updated understanding of the Human M
 
 The Shevirat epistemological approach integrates the creative flow of the mystic and the rigor of the scholar. The result is an Interdimensional Cathedral, an architecture that is **comprehensive, modular, self-guided, coherent, robust, transparent and open source**. A system of models that are interrelated, perfectly aligned to one other and proven productive for the goal of healing, growing and evolving into the most powerful version one can possibly become.    
 
-The core philosophy of the model is Spiritual Transhumanism, which contends that humanity is on its path towards a new evolutionary phase, and therefore each individual can, and should, perhaps, actualize their full potential at these critical times.
+The core philosophy of the model is Spiritual Transhumanism, which contends that humanity is on its path towards a new evolutionary phase, and therefore each individual can, and perhaps should, actualize their full potential in order to navigate these critical times.
   
 Shevirat is also an **Air Castle**: no dogma, no institution, no external validation, no fillings, no substances, no *crutches*. Pure soul work, inner grind, Alchemy of the highest order.
  
