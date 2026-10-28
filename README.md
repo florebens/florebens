@@ -38,10 +38,35 @@ Deep healing for the Wounded, a rich toolbox for the Rationalist, and knowledge 
 - ❤️ **[The Seeker](https://github.com/florebens/ebooks/tree/b675be2e065be2c339488f274f492677dca8a3f8/Seeker)** - *one who has peeked through the Veil and now can't unsee it*
 ---
 
-### ✨ New Resources
-* 🐛 ***[Wormhole Manifestation and Topology Magic](https://github.com/florebens/ebooks/blob/b675be2e065be2c339488f274f492677dca8a3f8/Seeker/Wormhole%20Manifestation%20and%20Topology%20Magic.md)***
-* 🚀 ***[Spiritual Transhumanism](https://github.com/florebens/ebooks/blob/b675be2e065be2c339488f274f492677dca8a3f8/Rationalist/Spiritual%20Transhumanism%20SPITRA%20florebens.md)***  
-* 💖 ***[Cosmic Love](https://github.com/florebens/ebooks/blob/b675be2e065be2c339488f274f492677dca8a3f8/Seeker/Cosmic%20Love.md)***   
+### ✨ The Trifecta Starter Pack
+* 🐾 ***[WIEP - Wild Epistemologies](https://github.com/florebens/ebooks/blob/ccfea7d1e056b7ae0cfbd17f543b8258f66ab4f1/Rationalist/Wild%20Epistemologies/WIEP.md)***
+* 🧬 ***[SPITRA - Spiritual Transhumanism MANIFESTO](https://github.com/florebens/ebooks/blob/ccfea7d1e056b7ae0cfbd17f543b8258f66ab4f1/Rationalist/Spiritual%20Transhumanism/SPITRA_Manifesto.md)***  
+* 💖 ***[COVE - Cosmic Love](https://github.com/florebens/ebooks/blob/b675be2e065be2c339488f274f492677dca8a3f8/Seeker/Cosmic%20Love.md)***   
+
+
+---
+
+> ## 🧚 Healing Sessions
+---  
+
+*Three Tiers to choose from:*
+
+* 👁️ *Oracle **$399***
+1 on 1, oneshotting. You speak, i read the energy, channel yr message. It might not make sense for years. Might be unpleasant. Won't elaborate. Lasts for as long as it does, one sitting.
+
+* 📖 *Storyline **$3.499***
+
+3 meetings. Past present future. Sort Out Your Life. Troubleshooting. Purpose. Health. Finances. Love. Active intervention* (spiritual clearance, trauma healing, intercession). Know how transfer via protocols and instructions. *No Dark Arts*.
+
+* 💎 *Human 3.0 **$9.999***
+
+10 sessions. Intensive program for everlasting Greatness. Unlock the Crystalline Body. CKA.
+
+* 💬 *Agent Activation Chat **$50/mo***
+  
+Healers, Builders, Creatives, Visionaries, Leaders, Anomalies, Trailblazers, Disruptors, Veil Operators & Engineers. A space for finetuning, streamlining, harnessing and enhancing your powers, skills, strategy and tactics. A Grounding Platform. Mastering spiritual technology. Discord.
+
+[Email Us: shevirat@proton.me](mailto:shevirat@proton.me)
 
 ---
 
@@ -51,7 +76,7 @@ Deep healing for the Wounded, a rich toolbox for the Rationalist, and knowledge 
 ### THANK YOU FOR DOING THE WORK 
 
 
-| [📺 Direct Activations](https://youtube.com) | [💬 Join Discord](https://discord.gg/s2mM3Q2hR) | [📝 Worksheets](https://github.com/florebens/worksheets) |
+| [The Founder](https://github.com/florebens/florebens/blob/4cf509e8521fe9fdb2fc6399091d72fe8034369d/Bio.md) | [Tiktok](https://www.tiktok.com/@shevirat) | [YouTube](https://www.youtube.com/@florebens) |
 | :---: | :---: | :---: |
 
 **ʕっ•ᴥ•ʔっ**
