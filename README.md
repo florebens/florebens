@@ -39,9 +39,9 @@ Deep healing for the Wounded, a rich toolbox for the Rationalist, and knowledge 
 ---
 
 ### ✨ The Trifecta Starter Pack
-* 🐾 ***[WIEP - Wild Epistemologies](https://github.com/florebens/ebooks/blob/ccfea7d1e056b7ae0cfbd17f543b8258f66ab4f1/Rationalist/Wild%20Epistemologies/WIEP.md)***
-* 🧬 ***[SPITRA - Spiritual Transhumanism MANIFESTO](https://github.com/florebens/ebooks/blob/ccfea7d1e056b7ae0cfbd17f543b8258f66ab4f1/Rationalist/Spiritual%20Transhumanism/SPITRA_Manifesto.md)***  
-* 💖 ***[COVE - Cosmic Love](https://github.com/florebens/ebooks/blob/b675be2e065be2c339488f274f492677dca8a3f8/Seeker/Cosmic%20Love.md)***   
+* 🐾 ***[WIEP - Wild Epistemologies](https://github.com/florebens/ebooks/blob/main/Rationalist/Wild%20Epistemologies/WIEP.md)***
+* 🧬 ***[SPITRA - Spiritual Transhumanism MANIFESTO](https://github.com/florebens/ebooks/blob/main/Rationalist/Spiritual%20Transhumanism/SPITRA_Manifesto.md)***  
+* 💖 ***[COVE - Cosmic Love](https://github.com/florebens/ebooks/blob/main/Seeker/Cosmic%20Love.md)***   
 
 
 ---
