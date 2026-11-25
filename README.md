@@ -53,13 +53,13 @@ Deep healing for the Wounded, a rich toolbox for the Rationalist, and knowledge 
 > ## 🧚 Healing Sessions
 ---  
 
-*Three Tiers to choose from:*
+*Three Tiers and a Club:*
 
 * 👁️ *Oracle **$399*** :: Oneshotting. You speak, We read the energy, channel your message. It might not make sense for years. Might be unpleasant. Won't elaborate. The Session lasts for as long as it does, one sitting. No refunds.
 
-* 📖 *Storyline **$3.499*** :: Three Sessions: past, present, future. **Sort Out Your Life.** Troubleshooting: Purpose. Health. Finances. Love. **Active intervention** (spiritual clearance, trauma healing, intercession). Know how transfer via protocols and instructions. *No Dark Arts*.
+* 📖 *Storyline **$3,499*** :: Three Sessions: past, present, future. **Sort Out Your Life.** Troubleshooting: Purpose. Health. Finances. Love. **Active intervention** (spiritual clearance, trauma healing, intercession). Know how transfer via protocols and instructions. *No Dark Arts*.
 
-* 💎 *Human 3.0 **$9.999*** :: 10 sessions. Intensive program for Everlasting Greatness. Unlock the Crystalline Body and Merkaba. *Advanced Spiritual Practitioners Only.*
+* 💎 *Human 3.0 **$9,999*** :: 10 sessions. Intensive program for Everlasting Greatness. Unlock the Crystalline Body and Merkaba. *Advanced Spiritual Practitioners Only.*
 
 * 💬 *Agent Activation Chat **$50/mo*** :: Healers, Builders, Creatives, Visionaries, Leaders, Anomalies, Trailblazers, Disruptors, Veil Operators & Engineers. A space for finetuning, streamlining, harnessing and enhancing your powers, skills, strategy and tactics. A Grounding Platform. Mastering spiritual technology. Discord.
 
